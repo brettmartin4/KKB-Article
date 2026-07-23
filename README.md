@@ -38,7 +38,7 @@ Cross the bridge toward the south side of the river. At the end, turn left and f
 
 Yanagimori Shrine supplies the real-world location (and parts of the exterior  and immediate interior design) for the Yanabayashi Shrine from the series, where Luka lives and where the IBN 5100 is initially kept. The small gate, steep steps immediately within the gate, retaining walls, and cramped placement beside the river are immediately recognizable, although the shrine grounds themselves are a long shot from what's shown in the series. In Steins;Gate, Yanabayashi Shrine is actually a composite location where Yanagimori Shrine serves as the placement and exterior setting reference whereas Kanda Myojin (which we visit later on in this guide) serves as the interior visual inspiration.
 
-After leaving the shrine, cross the street and continue west along Yanagihara-dori toward Manseibashi.
+After leaving the shrine, cross the street and continue west along Yanagihara Street toward Manseibashi.
 
 ## 3. The “Creepy Vending Machine Corner” *(optional—not from Steins;Gate)*
 
@@ -46,13 +46,13 @@ Shortly before reaching Manseibashi, you will pass one of Akihabara's strangest 
 
 I've been told that this area is considerably stranger after dark.
 
-Continue west until the street meets Chuo-dori and the Kanda River at Manseibashi.
+Continue west until the street meets Chuo Street and the Kanda River at Manseibashi.
 
 ## 4. Manseibashi Bridge
 
-By the time you reach Chuo-dori, Manseibashi will be immediately visible on the right. The bridge appears several times in *Steins;Gate*, most memorably when Okabe and Kurisu carry the large cardboard box containing the IBN 5100 over it.
+By the time you reach Chuo Street, Manseibashi will be immediately visible on the right. The bridge appears several times in *Steins;Gate*, most memorably when Okabe and Kurisu carry the large cardboard box containing the IBN 5100 over it.
 
-From Manseibashi, follow Chuo-dori north toward Akihabara Station. Radio Kaikan will soon appear on the right.
+From Manseibashi, follow Chuo Street north toward Akihabara Station. Radio Kaikan will soon appear on the right.
 
 ## 5. Akihabara Radio Kaikan
 
@@ -62,11 +62,11 @@ The building standing here today is not the exact structure seen in the original
 
 After leaving Radio Kaikan, head across the street into the labyrinth of tiny shops within the Radio Center. This area is frequented by the cast in search for spare parts for the IBN 5100 in the game and anime. In the past, this tunnel system of small, recessed stores sold all sorts of electrical components and tools. While the shops within the center are mostly otaku-related today, the second floor houses goods and rarities that more closely resemble what you'd expect to see being sold more broadly 10 or 20 years ago.
 
-Leave the alleyway the way you entered and walk west toward Chuo-dori and look north toward the railway bridge carrying the Chuo-Sobu Line over the street.
+Leave the alleyway the way you entered, walk west toward Chuo Street, and look north toward the railway bridge carrying the Chuo-Sobu Line over the street.
 
 ## 6. Chuo-Sobu Line Bridge and the *Phenogram* Manhole
 
-The railway bridge over Chuo-dori appears throughout *Steins;Gate* media and is one of the most recognizable pieces of Akihabara's streetscape. The bridge also appears in *Steins;Gate 0*, where the structure collapses into the street during the conflict over the time machine.
+The railway bridge over Chuo Street appears throughout *Steins;Gate* media and is one of the most recognizable pieces of Akihabara's streetscape. The bridge also appears in *Steins;Gate 0*, where the structure collapses into the street during the conflict over the time machine.
 
 This area contains a smaller pilgrimage detail that is easy to miss: an otherwise ordinary manhole cover associated with Daru's story in *Steins;Gate: Linear Bounded Phenogram*. Although many of the manholes in this area look similar, the one with the correct code should be located in one of the alleyways near the LAOX building.
 
