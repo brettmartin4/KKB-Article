@@ -70,7 +70,7 @@ This area contains a smaller pilgrimage detail that is easy to miss: an otherwis
 
 Continue through the nearby side streets toward Akibaoo's second shop.
 
-## 7. Akibaoo 2nd Shop
+## 7. Akibaoo 2nd Shop *(optional)*
 
 Akibaoo 2nd Shop appears as a background location in the *Steins;Gate 0* anime. It is not associated with one of the franchise's largest plot events, but it is a fun stop because it represents the type of densely stocked, slightly chaotic electronics-and-variety store that defines the older image of Akihabara.
 
@@ -90,7 +90,7 @@ Continue toward the passages beneath the railway tracks near Akihabara Station.
 
 ## 10. Beneath the Akihabara Station Tracks *(optional)*
 
-The streets and passages beneath Akihabara's elevated railway lines appear repeatedly as transitional backgrounds throughout *Steins;Gate* and *Steins;Gate 0*, such as when Okabe and Feris are evading their persuers or when Okabe and Luka are on their date. Although not a major location, I thought it helped round out the area by giving me a better idea where parts of the story took place.
+The streets and passages beneath Akihabara's elevated railway lines appear repeatedly as transitional backgrounds throughout *Steins;Gate* and *Steins;Gate 0*, such as when Okabe and Faris are evading their persuers or when Okabe and Luka are on their date. Although not a major location, I thought it helped round out the area by giving me a better idea where parts of the story took place.
 
 Walk slightly south towards the Electric Town North Exit, then take the elevated pedestrian route toward Akihabara UDX and Crossfield.
 
@@ -108,7 +108,7 @@ Akiba Tashiro Street is the backstreet running north behind the main Chuo Street
 
 From the tower area, head west toward the nearby side street containing Sanbo.
 
-## 13. Beef Bowl Restaurant Sambo
+## 13. Beef Bowl Restaurant Sanbo
 
 Sanbo is the real gyudon restaurant that appears in the series and one of the few pilgrimage locations where visitors can do more than photograph an exterior. The restaurant is small, old-fashioned, and direct: sit down, order beef, eat, and get out. Its yellow signage and compact interior are instantly recognizable. To order, insert cash into the vending machine just inside the sliding door, press the button corresponding to your order, and hand the ticket to the wait staff before taking your seat. The whole process is supposed to move along quickly, so be sure to consult the photos for pictures of the menu beforehand if you have trouble reading kanji so you don't hold up the line.
 
@@ -136,7 +136,7 @@ This is an active neighborhood park, so you should avoid taking photos. Take a m
 
 Cafe Mai:lish is the real maid cafe that inspired MayQueen+Nyan², where Faris and Mayuri work. Both the exterior and portions of the interior influenced the fictional cafe, although the anime expands the space a bit.
 
-Unlike most stops on this route, Mai:lish offers the opportunity to experience the inspiration from the inside. The cafe has maintained a long relationship with *Steins;Gate* and has frequently displayed franchise artwork, offered character-inspired menu items, and hosted collaborations. Mai:lish is also somewhat calmer than the other maid cafes in the area. Normal etiquette still applies (e.g., no photgraphic the staff) and a minimum purchase of one drink is required. For my fellow stamp collecters, there's also a Feris-themed stamp available near the checkout counter!
+Unlike most stops on this route, Mai:lish offers the opportunity to experience the inspiration from the inside. The cafe has maintained a long relationship with *Steins;Gate* and has frequently displayed franchise artwork, offered character-inspired menu items, and hosted collaborations. Mai:lish is also somewhat calmer than the other maid cafes in the area. Normal etiquette still applies (e.g., no taking pictures of the staff) and a minimum purchase of one drink is required. For my fellow stamp collecters, there's also a Faris-themed stamp available near the checkout counter!
 
 From Cafe Mai:lish, head southwest toward Kanda Myojin.
 
