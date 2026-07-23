@@ -60,7 +60,9 @@ Radio Kaikan is the single most important real-world landmark in *Steins;Gate*. 
 
 The building standing here today is not the exact structure seen in the original game and anime. The old Radio Kaikan closed in 2011 and was replaced by the current building, which opened in 2014. The new version is taller and more modern, but it occupies the same site and preserves the famous yellow-and-red **世界のラジオ会館 秋葉原** signage, making it unmistakable. [Photos of the old building](https://photoakiba.jp/special/radio/menu.htm) show the characteristic old staircase and rooms remeniscent of the visual novel and anime backgrounds. Despite the major changes, it's still worth shopping around inside for otaku goods! There are also vending machines on the first and 10th floor that dispense Steins;Gate-themed energy drinks with acrylic keychains and stickers.
 
-After leaving Radio Kaikan, walk west toward Chuo-dori and look north toward the railway bridge carrying the Chuo-Sobu Line over the street.
+After leaving Radio Kaikan, head across the street into the labyrinth of tiny shops within the Radio Center. This area is frequented by the cast in search for spare parts for the IBN 5100 in the game and anime. In the past, this tunnel system of small, recessed stores sold all sorts of electrical components and tools. While the shops within the center are mostly otaku-related today, the second floor houses goods and rarities that more closely resemble what you'd expect to see being sold more broadly 10 or 20 years ago.
+
+Leave the alleyway the way you entered and walk west toward Chuo-dori and look north toward the railway bridge carrying the Chuo-Sobu Line over the street.
 
 ## 6. Chuo-Sobu Line Bridge and the *Phenogram* Manhole
 
