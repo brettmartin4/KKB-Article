@@ -16,7 +16,7 @@ Each numbered marker on the map below corresponds to a section of this guide. I 
 
 ---
 
-## START: Akihabara Station
+## START: Akihabara Station (Stamp 1/4)
 
 Akihabara Station serves as the central hub of Tokyo's famous Electric Town (not to be confused with [my hometown, the Electric City](https://www.youtube.com/watch?v=cS9qCre_sv8)). The neighborhood grew from its postwar radio-parts markets into one of the world's best-known centers for electronics, computers, games, anime, and other branches of otaku culture. The Akihabara of today may contain far more character goods shops and maid cafes than it did during the height of its electronics era, but traces of the older district remain in the cramped component stores, cluttered signs, narrow alleys, and shops selling objects whose purposes are not immediately obvious.
 
@@ -134,7 +134,7 @@ Horin Park appears several times in the anime, often during conversations betwee
 
 This is an active neighborhood park, so you should avoid taking photos. Take a moment to appreciate the area and continue west and north toward Cafe Mai:lish.
 
-## 17. Cafe Mai:lish
+## 17. Cafe Mai:lish (Stamp 2/4)
 
 Cafe Mai:lish is the real maid cafe that inspired MayQueen+Nyan², where Faris and Mayuri work. Both the exterior and portions of the interior influenced the fictional cafe, although the anime expands the space a bit.
 
@@ -142,9 +142,9 @@ Unlike most stops on this route, Mai:lish offers the opportunity to experience t
 
 From Cafe Mai:lish, head southwest toward Kanda Myojin.
 
-## 18. Kanda Myojin Shrine
+## 18. Kanda Myojin Shrine (Stamp 3/4)
 
-Kanda Myojin provides much of the visual inspiration for the fictional Yanabayashi Shrine. Its broader grounds and architecture resemble the version seen in the game and anime far more closely than the comparatively smaller interior of Yanagimori Shrine. Also, for you pilgrimage-stamp collectors, the EDOCCO cultural complex beside the shrine hosts the Anime Tourism Association's *STEINS;GATE* “88 Japanese Anime Spots” certification display and memorial stamp. At the time of writing, the stamp is still located on the basement level near the entrance to EDOCCO Studio. If you're like me and forgot your stamp book when you visit, you can always run to the nearby FamilyMart to pick up some Hagaki (post cards) to use, instead.
+Kanda Myojin provides much of the visual inspiration for the fictional Yanabayashi Shrine. Its broader grounds and architecture resemble the version seen in the game and anime far more closely than the comparatively smaller interior of Yanagimori Shrine. Also, for you pilgrimage-stamp collectors, the EDOCCO cultural complex beside the shrine hosts the Anime Tourism Association's *STEINS;GATE* “88 Japanese Anime Spots” certification display and memorial stamp. At the time of writing, the stamp is still located on the basement level near the entrance to EDOCCO Studio. If you're like me and forgot your stamp book when you visit, you can always run to the nearby FamilyMart to pick up some Hagaki (blank post cards) to use, instead.
 
 After exploring the shrine, leave toward Ochanomizu and walk to Hijiri Bridge.
 
@@ -154,7 +154,7 @@ Hijiri Bridge and the surrounding intersection appear in both *Steins;Gate* and 
 
 Continue across the bridge toward Ochanomizu Station.
 
-## 20. Ochanomizu and Shin-Ochanomizu Stations
+## 20. Ochanomizu and Shin-Ochanomizu Stations (Stamp 4/4)
 
 The Ochanomizu area appears in the infamous scene in which Nae pushes Mayuri onto the tracks. Although this scene actually takes place in Shin-Ochanomizu Station, the eki stamp for this area can be collected outside the west gate of JR Ochanomizu Station.
 
